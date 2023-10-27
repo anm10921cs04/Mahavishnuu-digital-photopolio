@@ -1,1 +1,0 @@
-# Mahavishnuu-digital-photopolio
